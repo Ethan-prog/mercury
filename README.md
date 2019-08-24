@@ -1,0 +1,2 @@
+# mercury
+study work hard
